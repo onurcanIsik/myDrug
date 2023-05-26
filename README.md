@@ -4,12 +4,17 @@
 
 https://github.com/onurcanIsik/myDrug/assets/84295038/778aa186-c66b-4765-8991-18f8ae222d63
 
-![Ekran Resmi 2023-05-27 02 04 08](https://github.com/onurcanIsik/myDrug/assets/84295038/ea782cdb-1673-4bdb-95b3-105871c4e255) ![Ekran Resmi 2023-05-27 02 04 23](https://github.com/onurcanIsik/myDrug/assets/84295038/6c8bf3cc-c185-4aba-a7f5-2730fc5a5d04)
+![Ekran Resmi 2023-05-27 02 04 08](https://github.com/onurcanIsik/myDrug/assets/84295038/808cccdc-453f-4ff6-b17f-047b9d794502)
+![Ekran Resmi 2023-05-27 02 04 23](https://github.com/onurcanIsik/myDrug/assets/84295038/5d330cbb-d2a1-4905-93e5-6b076ea8661a)
 
-![Ekran Resmi 2023-05-27 02 04 30](https://github.com/onurcanIsik/myDrug/assets/84295038/066429cd-221f-4f7b-914c-baa30a934bcd) ![Ekran Resmi 2023-05-27 02 04 38](https://github.com/onurcanIsik/myDrug/assets/84295038/c186e291-995b-4cd2-a37c-0ecf6900651a)
+![Ekran Resmi 2023-05-27 02 04 30](https://github.com/onurcanIsik/myDrug/assets/84295038/5243c2fb-31c0-4b69-99a0-5f6fc2212c4f)
+![Ekran Resmi 2023-05-27 02 04 38](https://github.com/onurcanIsik/myDrug/assets/84295038/cf4f8db0-1c75-45ca-96f6-77d9609f9d62)
 
-![Ekran Resmi 2023-05-27 02 04 48](https://github.com/onurcanIsik/myDrug/assets/84295038/c274d969-3511-456c-946d-5c7608415207) ![Ekran Resmi 2023-05-27 02 05 15](https://github.com/onurcanIsik/myDrug/assets/84295038/e45cd0d8-d2d4-4aad-8b6c-169a2e0d9570)
+![Ekran Resmi 2023-05-27 02 04 48](https://github.com/onurcanIsik/myDrug/assets/84295038/152c6b20-6f9c-4891-8228-08656209148f)
+![Ekran Resmi 2023-05-27 02 05 15](https://github.com/onurcanIsik/myDrug/assets/84295038/db6d4858-0bb5-4ebf-96ac-9c763e895a3c)
 
-![Ekran Resmi 2023-05-27 02 05 28](https://github.com/onurcanIsik/myDrug/assets/84295038/9bfe1519-a75d-4703-b581-371419b5149a) ![Ekran Resmi 2023-05-27 02 05 38](https://github.com/onurcanIsik/myDrug/assets/84295038/26fffc4f-dd22-4ffe-8b40-82cdd77ce33e)
+![Ekran Resmi 2023-05-27 02 05 28](https://github.com/onurcanIsik/myDrug/assets/84295038/e29a0952-dbd4-4e4a-8478-fdbc5538dfc1)
+![Ekran Resmi 2023-05-27 02 05 38](https://github.com/onurcanIsik/myDrug/assets/84295038/6a7115cb-2773-4b9d-b354-00f0f036199d)
 
-![Ekran Resmi 2023-05-27 02 05 46](https://github.com/onurcanIsik/myDrug/assets/84295038/68653cdc-0e85-48b4-9f51-8be8a26345a2) ![Ekran Resmi 2023-05-27 02 05 56](https://github.com/onurcanIsik/myDrug/assets/84295038/dc0d0101-4675-4258-802a-2bf86ee09cc0)
+![Ekran Resmi 2023-05-27 02 05 46](https://github.com/onurcanIsik/myDrug/assets/84295038/897d995b-59be-437d-9612-fc073005604f)
+![Ekran Resmi 2023-05-27 02 05 56](https://github.com/onurcanIsik/myDrug/assets/84295038/0334b339-0d97-4dc5-86b0-e6f132e76f20)
