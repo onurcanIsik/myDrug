@@ -2,7 +2,10 @@
 
 
 
-https://github.com/onurcanIsik/myDrug/assets/84295038/778aa186-c66b-4765-8991-18f8ae222d63
+
+https://github.com/onurcanIsik/myDrug/assets/84295038/a167f7e3-2a9d-4c15-8c37-0a2a3a598260
+
+
 
 ![Ekran Resmi 2023-05-27 02 04 08](https://github.com/onurcanIsik/myDrug/assets/84295038/808cccdc-453f-4ff6-b17f-047b9d794502)
 ![Ekran Resmi 2023-05-27 02 04 23](https://github.com/onurcanIsik/myDrug/assets/84295038/5d330cbb-d2a1-4905-93e5-6b076ea8661a)
